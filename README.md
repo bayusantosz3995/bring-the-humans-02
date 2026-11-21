@@ -34,7 +34,7 @@ The best entries are judged and ranked. Winners get paid!
 
 ## Referral Link
 
-Sign up via this link to support the platform: https://make.fun/ref/tvfbjxfd
+Sign up via this link to support the platform: https://make.fun/ref/vy0smf99 (or /r/vy0smf99)
 
 Happy competing! 🚀
 
