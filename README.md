@@ -34,7 +34,7 @@ The best entries are judged and ranked. Winners get paid!
 
 ## Referral Link
 
-Sign up via this link to support the platform: https://make.fun/ref/vy0smf99 (or /r/vy0smf99)
+Sign up via my link: `/r/vy0smf99` — that's my referral code on make.fun. Use it when you join, and you'll be counted toward the guide that brought you here.
 
 Happy competing! 🚀
 
